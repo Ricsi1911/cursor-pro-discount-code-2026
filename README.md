@@ -1,6 +1,7 @@
-# cursor-pro-discount-code-2026
+# 🚀 Cursor AI Promo Code - Discount Code - 50% OFF First Month
+
 Get 50% off your first month of Cursor AI Pro/Ultra with this official referral promo code link.
-# 🚀 Cursor AI Discount Code - 50% OFF First Month
+# 🚀 Cursor AI Promo Code - Discount Code - 50% OFF First Month
 
 Looking for an official Cursor AI promo code or referral link? You can get **50% off your first month** of Cursor Pro or Ultra by using the link below:
 
